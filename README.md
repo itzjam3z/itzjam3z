@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @itzjam3z
+- 👀 I’m interested in Game Development
+- 🌱 I’m currently learning LUAU
+- 📫 How to reach me JamesHathaway@lilicey.games
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: SYOB EVOL I
